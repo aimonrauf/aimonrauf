@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @aimonrauf
+- 👀 I’m interested in social work  
+- 🌱 I’m currently learning how to write a good article
+- 📫 How to reach me ... just email me on my email address
